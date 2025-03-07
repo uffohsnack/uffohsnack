@@ -12,5 +12,5 @@
 </p>
 
 <p align="center" width="100%">
-𓍼　rentry wip　˖⁠　minor　⏆　weirdos dni.
+𓍼　rentry soon (hopefully)　˖⁠　minor　⏆　weirdos dni.
 </p>
