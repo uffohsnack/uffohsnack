@@ -7,7 +7,7 @@
 </p>
 
 <p align="center" width="100%">
-    <img src="https://komarev.com/ghpvc/?username=uffohsnack&style=for-the-badge&label=<3> 
+    <img src="https://komarev.com/ghpvc/?username=uffohsnack&label=<3&color=612020"> 
 
 </p>
 
