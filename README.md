@@ -21,5 +21,5 @@
 </p>
 
 <p align="center" width="100%">
-𓍼　rentry wip　˖⁠　minor　⏆　weirdos dni.
+𓍼　angst addict　˖⁠　minor　⏆　weirdos dni.
 </p>
