@@ -21,5 +21,5 @@
 </p>
 
 <p align="center" width="100%">
-𓍼　gi/hsr/pgr/wuwa addict　˖⁠　minor　⏆　weirdos dni.
+𓍼　c+h/int always　˖⁠　minor　˖⁠　weirdos/freaky dni
 </p>
