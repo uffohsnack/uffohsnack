@@ -17,9 +17,9 @@
 
 
 <p align="center" width="100%">
-︵︵ 　UFFOH。　𓂃　HE/THEY ﾐ
+︵︵ 　UFFOH。　⁺　 HE/THEY  ᘝ
 </p>
 
 <p align="center" width="100%">
-𓍼　rentry soon (hopefully)　˖⁠　minor　⏆　weirdos dni.
+𓍼　rentry wip　˖⁠　minor　⏆　weirdos dni.
 </p>
