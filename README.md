@@ -1,4 +1,4 @@
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31vo5s6i4vaffyzzsvdeat4opp6q&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=true&bar_color=525252&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31vo5s6i4vaffyzzsvdeat4opp6q&redirect=true)
+[[https://spotify-github-profile.kittinanx.com/api/view.svg?uid=31vo5s6i4vaffyzzsvdeat4opp6q&redirect=true][https://spotify-github-profile.kittinanx.com/api/view.svg?uid=31vo5s6i4vaffyzzsvdeat4opp6q&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=true&bar_color=454545&bar_color_cover=false)]]
 
 
 <p align="center" width="100%">
