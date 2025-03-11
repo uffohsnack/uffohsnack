@@ -3,7 +3,7 @@
 ![image](https://github.com/user-attachments/assets/05b12b3a-3e6d-4e1e-8007-ae1ccc2afc01)
 
 <p align="center" width="100%">
-    <img src="https://komarev.com/ghpvc/?username=uffohsnack&label=Ⳋ᧙ㅤcuties&color=947896"> 
+    <img src="https://komarev.com/ghpvc/?username=uffohsnack&label=Ⳋ᧙ㅤcuties&color=947896&style=for-the-badge"> 
 </p>
 
 <p align="center" width="100%">
