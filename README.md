@@ -16,7 +16,6 @@
 <p align="center" width="100%">
 ୨ㅤ࣪ㅤ︶︶︶︶ㅤㅤ꒰୨ ୧꒱ㅤㅤ︶︶︶︶ㅤ࣪ㅤ୧
 </p>
-
 <p align="center" width="100%">
 ︵︵ 　UFFOH。　⁺　 HE/THEY  ᘝ
 </p>
