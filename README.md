@@ -25,5 +25,3 @@
 </p>
 
 ![image](https://github.com/user-attachments/assets/92e96414-1ca4-4fc2-bee6-ebc344ccb686)
-
-creds: tumblr, a great place to find graphics
