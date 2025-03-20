@@ -1,8 +1,8 @@
+![image](https://github.com/user-attachments/assets/a5e83884-b87d-462a-b3bf-f0a1563622d3)
+
 <p align="center" width="100%">
     <img src="https://komarev.com/ghpvc/?username=uffohsnack&label=Ⳋ᧙ㅤcuties&color=f5c4d4&style=for-the-badge"> 
 </p>
-
-![image](https://github.com/user-attachments/assets/a5e83884-b87d-462a-b3bf-f0a1563622d3)
 
 <p align="center" width="100%">
 <image src="https://github.com/user-attachments/assets/7b76b6a3-0ca5-4d8e-be7e-cf9666170c1f"
