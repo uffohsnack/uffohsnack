@@ -3,10 +3,6 @@
 ![image](https://github.com/user-attachments/assets/a5e83884-b87d-462a-b3bf-f0a1563622d3)
 
 <p align="center" width="100%">
-    <img src="https://komarev.com/ghpvc/?username=uffohsnack&label=Ⳋ᧙ㅤcuties&color=947896&style=for-the-badge"> 
-</p>
-
-<p align="center" width="100%">
 <image src="https://github.com/user-attachments/assets/7b76b6a3-0ca5-4d8e-be7e-cf9666170c1f"
 </p>
 
@@ -31,6 +27,10 @@
 
 <p align="center" width="100%">
 𓍼　c+h/int always　˖⁠　minor　˖⁠　weirdos/freaky dni
+</p>
+
+<p align="center" width="100%">
+    <img src="https://komarev.com/ghpvc/?username=uffohsnack&label=Ⳋ᧙ㅤcuties&color=947896&style=for-the-badge"> 
 </p>
 
 ![image](https://github.com/user-attachments/assets/bafa9ac2-811f-4889-b4de-076bcb0c9702)
