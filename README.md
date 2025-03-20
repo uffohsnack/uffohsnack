@@ -2,9 +2,12 @@
 
 ![image](https://github.com/user-attachments/assets/a5e83884-b87d-462a-b3bf-f0a1563622d3)
 
-
 <p align="center" width="100%">
     <img src="https://komarev.com/ghpvc/?username=uffohsnack&label=Ⳋ᧙ㅤcuties&color=947896&style=for-the-badge"> 
+</p>
+
+<p align="center" width="100%">
+<image src="https://github.com/user-attachments/assets/7b76b6a3-0ca5-4d8e-be7e-cf9666170c1f"
 </p>
 
 <p align="center" width="100%">
@@ -16,6 +19,11 @@
 </p>
 <p align="center" width="100%">
 ୨ㅤ࣪ㅤ︶︶︶︶ㅤㅤ꒰୨ ୧꒱ㅤㅤ︶︶︶︶ㅤ࣪ㅤ୧
+
+<p align="center" width="100%">
+<image src="https://github.com/user-attachments/assets/14bc28f5-a326-4017-a3c0-79f83b08ee32&https://github.com/user-attachments/assets/b2555f20-0107-4e62-b991-46f564bd972d"
+</p>
+
 </p>
 <p align="center" width="100%">
 ︵︵ 　UFFOH。　⁺　 HE/THEY  ᘝ
