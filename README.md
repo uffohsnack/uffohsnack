@@ -1,5 +1,5 @@
 <p align="center" width="100%">
-    <img src="https://komarev.com/ghpvc/?username=uffohsnack&label=Ⳋ᧙ㅤcuties&color=947896&style=for-the-badge"> 
+    <img src="https://komarev.com/ghpvc/?username=uffohsnack&label=Ⳋ᧙ㅤcuties&color=f5c4d4&style=for-the-badge"> 
 </p>
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31vo5s6i4vaffyzzsvdeat4opp6q&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=true&bar_color=454545&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31vo5s6i4vaffyzzsvdeat4opp6q&redirect=true)
