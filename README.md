@@ -20,7 +20,7 @@
 
 </p>
 <p align="center" width="100%">
-︵︵ 　UFFOH。　⁺　 HE/THEY  ᘝ
+︵︵ 　UFFOH。　⁺　 any pronouns  ᘝ
 </p>
 
 <p align="center" width="100%">
