@@ -16,11 +16,6 @@
 <p align="center" width="100%">
 ୨ㅤ࣪ㅤ︶︶︶︶ㅤㅤ꒰୨ ୧꒱ㅤㅤ︶︶︶︶ㅤ࣪ㅤ୧
 
-</p>
-<p align="center" width="100%">
-︵︵ 　UFFOH。　⁺　 any pronouns  ᘝ
-</p>
-
 <p align="center" width="100%">
 𓍼　c+h/int always　˖⁠　minor　˖⁠　weirdos/freaky dni
 </p>
