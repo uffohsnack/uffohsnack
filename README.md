@@ -16,8 +16,4 @@
 <p align="center" width="100%">
 ୨ㅤ࣪ㅤ︶︶︶︶ㅤㅤ꒰୨ ୧꒱ㅤㅤ︶︶︶︶ㅤ࣪ㅤ୧
 
-<p align="center" width="100%">
-𓍼　c+h/int always　˖⁠　minor　˖⁠　weirdos/freaky dni
-</p>
-
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31vo5s6i4vaffyzzsvdeat4opp6q&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=true&bar_color=454545&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31vo5s6i4vaffyzzsvdeat4opp6q&redirect=true)
