@@ -1,3 +1,5 @@
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31vo5s6i4vaffyzzsvdeat4opp6q&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=true&bar_color=454545&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31vo5s6i4vaffyzzsvdeat4opp6q&redirect=true)
+
 <p align="center" width="100%">
     <img src="https://komarev.com/ghpvc/?username=uffohsnack&label=Ⳋ᧙ㅤcuties&color=f5c4d4&style=for-the-badge"> 
 </p>
@@ -20,5 +22,3 @@
 <image src="https://media.discordapp.net/attachments/1434277776554201160/1447397231123501176/image_2025-12-07_201945723.png?ex=69397377&is=693821f7&hm=7434d0f47b98431a46f1387cb45730e96ee88b26768d1464b2fecd763c40ecbd&=&format=webp&quality=lossless&width=548&height=383"
 </p>
 <p align="center" width="100%">
-
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31vo5s6i4vaffyzzsvdeat4opp6q&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=true&bar_color=454545&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31vo5s6i4vaffyzzsvdeat4opp6q&redirect=true)
