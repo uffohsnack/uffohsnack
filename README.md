@@ -17,6 +17,6 @@
 ୨ㅤ࣪ㅤ︶︶︶︶ㅤㅤ꒰୨ ୧꒱ㅤㅤ︶︶︶︶ㅤ࣪ㅤ୧
 
 <p align="center" width="100%">
-<image src="https://media.discordapp.net/attachments/1434277776554201160/1447397231123501176/image_2025-12-07_201945723.png?ex=69397377&is=693821f7&hm=7434d0f47b98431a46f1387cb45730e96ee88b26768d1464b2fecd763c40ecbd&=&format=webp&quality=lossless&width=548&height=383"
+<image src="https://media.discordapp.net/attachments/1434277776554201160/1447397231123501176/image_2025-12-07_201945723.png?ex=694550f7&is=6943ff77&hm=e10824ee882e60b47a63132d5eabe6534f76b8f30eb312f81e3d7164a588e1bb&=&format=webp&quality=lossless&width=548&height=383"
 </p>
 <p align="center" width="100%">
