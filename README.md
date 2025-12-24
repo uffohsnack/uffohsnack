@@ -19,8 +19,3 @@
 </p>
 <p align="center" width="100%">
 ୨ㅤ࣪ㅤ︶︶︶︶ㅤㅤ꒰୨ ୧꒱ㅤㅤ︶︶︶︶ㅤ࣪ㅤ୧
-
-<p align="center" width="100%">
-<image src="https://media.discordapp.net/attachments/1434277776554201160/1447397231123501176/image_2025-12-07_201945723.png?ex=694550f7&is=6943ff77&hm=e10824ee882e60b47a63132d5eabe6534f76b8f30eb312f81e3d7164a588e1bb&=&format=webp&quality=lossless&width=548&height=383"
-</p>
-<p align="center" width="100%">
