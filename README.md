@@ -3,7 +3,7 @@
 </p>
 
 <p align="center" width="100%">
-    <img src="https://komarev.com/ghpvc/?username=uffohsnack&label=Ⳋ᧙ㅤcuties&color=c0dbd7&style=for-the-badge"> 
+    <img src="https://komarev.com/ghpvc/?username=uffohsnack&label=Ⳋ᧙ㅤcuties&color=c0dbd7&style=plastic"> 
 </p>
 
 <p align="center" width="100%">
