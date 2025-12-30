@@ -1,8 +1,4 @@
 <p align="center" width="100%">
-    <img src="https://media.discordapp.net/attachments/1437175238231195852/1452441243169718333/image_2025-12-21_182253100.png?ex=6949d2d1&is=69488151&hm=23a6e0c5bf3532826dc43c5d19822695ed12f84c5ad8ec04e17dcb96a13379d8&=&format=webp&quality=lossless&width=299&height=41"> 
-</p>
-
-<p align="center" width="100%">
     <img src="https://komarev.com/ghpvc/?username=uffohsnack&label=Ⳋ᧙ㅤcuties&color=c0dbd7&style=plastic"> 
 </p>
 
