@@ -3,7 +3,7 @@
 </p>
 
 <p align="center" width="100%">
-<image src="https://64.media.tumblr.com/94ce293f056d668e6c2cd8fd8247bc9b/d837f82a0aa70c33-36/s1280x1920/ab3fd3f1f7119dff957ee338d64cab40eb5458ad.pnj"
+<image src="https://64.media.tumblr.com/14e5553bf95f7a4531a99b92da5456e5/e7ae404764f8bd68-62/s1280x1920/5927704fba57a27216251565c58ff3c8536f43b2.pnj"
 </p>
 
 <p align="center" width="100%">
@@ -11,7 +11,7 @@
 </p>
 
 <p align="center" width="100%">
-<image src="https://64.media.tumblr.com/47dc0b73e88802fb5fd93017046b5dfc/d837f82a0aa70c33-cc/s1280x1920/13516f55b00fa9f5dac9fc3ebc54e04bb65a568a.gifv"
+<image src="https://64.media.tumblr.com/6b8fd6eafb9f6e44d6a9388f743ae32f/e7ae404764f8bd68-cd/s1280x1920/6b41e7176929b9dd2ec87e5742e4fe8c16fb1813.pnj"
 </p>
 <p align="center" width="100%">
 ୨ㅤ࣪ㅤ︶︶︶︶ㅤㅤ꒰୨ ୧꒱ㅤㅤ︶︶︶︶ㅤ࣪ㅤ୧
