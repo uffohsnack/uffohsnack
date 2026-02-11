@@ -1,8 +1,4 @@
 <p align="center" width="100%">
-best number 697 🤑
-</p>
-
-<p align="center" width="100%">
 <img width="462" height="51" alt="image" src="https://github.com/user-attachments/assets/647ab7b0-275b-4371-bfb8-fe8ce8cc2d9c" />
 </p>
 
