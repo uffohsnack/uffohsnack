@@ -6,11 +6,7 @@ best number 697 🤑
 </p>
 
 <p align="center" width="100%">
-    <img src="https://64.media.tumblr.com/2b521f81897fdaa9580f97981a8e5e66/6203bb6303ee6ac0-9e/s2048x3072/4ac4114e1c4beca0f73996a0a31d6de10c1a8934.pnj"> 
-</p>
-
-<p align="center" width="100%">
-    <img src="https://64.media.tumblr.com/3a2a8431b2572b40295b74f582a6774b/6203bb6303ee6ac0-5f/s2048x3072/dd75179db6b2e15a35ca6337a3f2e7785ccad63a.pnj"> 
+    <img src="https://64.media.tumblr.com/e9e3b353fbbe273955434159be352e87/56dd65834b35f621-6e/s2048x3072/0729b930b3fa866b44ebe13d47e2d027bd614f68.pnj"> 
 </p>
 
 <p align="center" width="100%">
@@ -18,7 +14,7 @@ best number 697 🤑
 </p>
 
 <p align="center" width="100%">
-<image src="https://64.media.tumblr.com/75df21f8ddf93d368874d052cd8dcd58/11f6fe4cd5a56910-b2/s640x960/3630be60e0291409490ea891079e825792405862.gifv"
+<image src="https://64.media.tumblr.com/4eccf28258eb0e5b795eaded2065bb64/56dd65834b35f621-3e/s400x600/8616e13f79060d5746ae894cc93c1eee46f47983.gifv"
 </p>
 
 <p align="center" width="100%">
@@ -26,7 +22,7 @@ best number 697 🤑
 </p>
 
 <p align="center" width="100%">
-<image src="https://64.media.tumblr.com/479a79225cdb8dfbde9b45f4f9297ad6/6203bb6303ee6ac0-b0/s1280x1920/db467ab105ca423aba497fa153a6e815eea4ac3e.pnj"
+<image src="https://64.media.tumblr.com/f0043cd1366aa50dea71edcb995751de/56dd65834b35f621-ec/s1280x1920/986e878dd94c76376ddfc40bc879b16b2d9d203f.gifv"
 </p>
 <p align="center" width="100%">
 ୨ㅤ࣪ㅤ︶︶︶︶ㅤㅤ꒰୨ ୧꒱ㅤㅤ︶︶︶︶ㅤ࣪ㅤ୧
@@ -34,11 +30,7 @@ best number 697 🤑
 <p align="center" width="100%">
 <image src="https://64.media.tumblr.com/75df21f8ddf93d368874d052cd8dcd58/11f6fe4cd5a56910-b2/s640x960/3630be60e0291409490ea891079e825792405862.gifv"
 </p>
-    
-<p align="center" width="100%">
-    <img src="https://64.media.tumblr.com/3a2a8431b2572b40295b74f582a6774b/6203bb6303ee6ac0-5f/s2048x3072/dd75179db6b2e15a35ca6337a3f2e7785ccad63a.pnj"> 
-</p>
 
 <p align="center" width="100%">
-    <img src="https://64.media.tumblr.com/10a26825771ff91d9640886a6c1560ec/6203bb6303ee6ac0-1d/s2048x3072/a282660a3a1c27f2fbbfb5bdb27857d29374801b.pnj"> 
+    <img src="https://64.media.tumblr.com/6eda80d89c5048753b9f782524dc4fb2/56dd65834b35f621-2e/s2048x3072/08409f4a5384ad62110ce71c9c986a12a08b18ed.pnj"> 
 </p>
