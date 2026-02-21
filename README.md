@@ -19,7 +19,7 @@
 </p>
 
 <p align="center" width="100%">
-<image src="https://64.media.tumblr.com/5fed9c4b08725702129765e6b5a416bc/4cef6d6390588562-ea/s1280x1920/7a56ed9e9248545319f1c630cbeed62e896ca7a8.gifv"
+<image src="https://64.media.tumblr.com/ec4a59cefd1fa80528b77c50d155b7af/4cef6d6390588562-5b/s1280x1920/098632a6441a8033e396bf91ae2f63f90e0404d4.gifv"
 </p>
 <p align="center" width="100%">
 ୨ㅤ࣪ㅤ︶︶︶︶ㅤㅤ꒰୨ ୧꒱ㅤㅤ︶︶︶︶ㅤ࣪ㅤ୧
