@@ -10,7 +10,7 @@
 ୨ㅤ࣪ㅤ︶︶︶︶ㅤㅤ꒰୨ ୧꒱ㅤㅤ︶︶︶︶ㅤ࣪ㅤ୧
 </p>
 <p align="center" width="100%">
-<image src="https://media1.tenor.com/m/pfKiIkVjoHAAAAAC/cynthia-cynthia-pokemon.gif"
+<image src="https://i.pinimg.com/originals/a1/87/c3/a187c32ebbfaf572d0699f7c8dfa1223.gif"
 </p>
 <p align="center" width="100%">
 ୨ㅤ࣪ㅤ︶︶︶︶ㅤㅤ꒰୨ ୧꒱ㅤㅤ︶︶︶︶ㅤ࣪ㅤ୧
