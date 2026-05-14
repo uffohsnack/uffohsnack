@@ -10,7 +10,7 @@
 ୨ㅤ࣪ㅤ︶︶︶︶ㅤㅤ꒰୨ ୧꒱ㅤㅤ︶︶︶︶ㅤ࣪ㅤ୧
 </p>
 <p align="center" width="100%">
-<image src="https://i.pinimg.com/1200x/d7/7b/aa/d77baa1511aa6238b9c4655f9e776cdf.jpg"
+<image src="https://i.pinimg.com/1200x/18/b6/7d/18b67dad4bba2a20f479e608aa4f896e.jpg"
 </p>
 <p align="center" width="100%">
 ୨ㅤ࣪ㅤ︶︶︶︶ㅤㅤ꒰୨ ୧꒱ㅤㅤ︶︶︶︶ㅤ࣪ㅤ୧
