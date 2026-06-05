@@ -1,4 +1,9 @@
 <p align="center" width="100%">
+<image src="https://64.media.tumblr.com/22fb3313bdc83133c4cebfcbf11f5a32/92dff24d7a47ddd2-9f/s75x75_c1/82453d40f58804a6f7f95c2238d127a05b27fbd0.gifv"
+</p>
+
+  
+<p align="center" width="100%">  
 <img src="https://komarev.com/ghpvc/?username=uffohsnack&label=ㅤⳊ᧙ㅤcutiesㅤㅤ&color=010409&style=plastic"> 
 </p>
 
