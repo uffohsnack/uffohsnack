@@ -4,7 +4,7 @@
 
   
 <p align="center" width="100%">  
-<img src="https://komarev.com/ghpvc/?username=uffohsnack&label= Ⳋ᧙ㅤcutiesㅤ&color=010409&style=plastic"> 
+<img src="https://komarev.com/ghpvc/?username=uffohsnack&label=Ⳋ᧙ cuties&color=010409&style=plastic"> 
 </p>
 
 <p align="center" width="100%">
