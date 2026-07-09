@@ -1,10 +1,6 @@
 <p align="center" width="100%">
 <image src="https://64.media.tumblr.com/64d4948f42f87dc9c8403bede0e8bcbd/8a2d6cae268f7f26-06/s100x200/680116162406043d5debc2e33596bbfadba6341d.gifv"
 </p>
-
-  
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ [rentry](https://rentry.co/fallingxangels) ㅤ𓈒 ㅤ[atabook](https://uffohsnack.atabook.org)ㅤㅤㅤㅤ
-
   
 <p align="center" width="100%">  
 <img src="https://komarev.com/ghpvc/?username=uffohsnack&label=Ⳋ᧙+cuties&color=010409&style=plastic"> 
