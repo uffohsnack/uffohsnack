@@ -1,5 +1,5 @@
 <p align="center" width="100%">
-<image src="https://64.media.tumblr.com/64d4948f42f87dc9c8403bede0e8bcbd/8a2d6cae268f7f26-06/s100x200/680116162406043d5debc2e33596bbfadba6341d.gifv"
+<image src="https://64.media.tumblr.com/04fffe76cb0486475270e3aaf08dc77d/757dec2dad152fd1-e1/s75x75_c1/d2140c9c0e6e610e115f2f193f4287507817c2ac.pnj"
 </p>
   
 <p align="center" width="100%">  
@@ -14,7 +14,7 @@
 ୨ㅤ࣪ㅤ︶︶︶︶ㅤㅤ꒰୨ ୧꒱ㅤㅤ︶︶︶︶ㅤ࣪ㅤ୧
 </p>
 <p align="center" width="100%">
-<image src="https://64.media.tumblr.com/633652547d4f5f0eb802fd658494fc18/77b90d015a7bbd9c-bd/s1280x1920/113799f817f4f35dc80f1c11071adb62d484ba3f.gifv"
+<image src="https://64.media.tumblr.com/f4efb7c7336ede4d7fde6a33d238e275/adf3e9e1a0a7fe87-98/s250x400/4987b11c8753e2ee90f7c9d9d0f21b68c5a599ea.gifv"
 </p>
 <p align="center" width="100%">
 ୨ㅤ࣪ㅤ︶︶︶︶ㅤㅤ꒰୨ ୧꒱ㅤㅤ︶︶︶︶ㅤ࣪ㅤ୧
