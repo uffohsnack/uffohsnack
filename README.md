@@ -6,19 +6,6 @@
 <img src="https://komarev.com/ghpvc/?username=uffohsnack&label=Ⳋ᧙+cuties&color=010409&style=plastic"> 
 </p>
 
-<p align="center" width="100%">
-<image src="https://64.media.tumblr.com/75df21f8ddf93d368874d052cd8dcd58/11f6fe4cd5a56910-b2/s640x960/3630be60e0291409490ea891079e825792405862.gifv"
-</p>
+Hello! As you know my name is Uffoh. This is very sudden but it was my choice, from this day 8/4/2026 forward I will be viewed as inactive or on a long break/hiatus from ponytown. Thank you everyone who have become my friend and came around me when I was active. ^^ **This doesn't mean I'm quitting ponytown as a whole**, but you will see me barely online as in a week+. Feel free to remove me from your mentions anywhere if you want, I do not mind at all. I have decided this because of most of my friends stopped coming around and wen their own ways and also I am extremely busy with irl things and have little to no time to get online and talk to my friends.
 
-<p align="center" width="100%">
-୨ㅤ࣪ㅤ︶︶︶︶ㅤㅤ꒰୨ ୧꒱ㅤㅤ︶︶︶︶ㅤ࣪ㅤ୧
-</p>
-<p align="center" width="100%">
-<image src="https://64.media.tumblr.com/f4efb7c7336ede4d7fde6a33d238e275/adf3e9e1a0a7fe87-98/s250x400/4987b11c8753e2ee90f7c9d9d0f21b68c5a599ea.gifv"
-</p>
-<p align="center" width="100%">
-୨ㅤ࣪ㅤ︶︶︶︶ㅤㅤ꒰୨ ୧꒱ㅤㅤ︶︶︶︶ㅤ࣪ㅤ୧
-
-<p align="center" width="100%">
-<image src="https://64.media.tumblr.com/75df21f8ddf93d368874d052cd8dcd58/11f6fe4cd5a56910-b2/s640x960/3630be60e0291409490ea891079e825792405862.gifv"
-</p>
+I love you guys, but irl is a lot more important since I have multiple situations happening.
