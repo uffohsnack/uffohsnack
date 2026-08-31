@@ -6,4 +6,4 @@
 <img src="https://komarev.com/ghpvc/?username=uffohsnack&label=Ⳋ᧙+cuties&color=010409&style=plastic"> 
 </p>
 
-hey, returning but removed all my friends since they're all inactive/not social to me much anymore + to start fresh, also changing ghs ^^ if you still want to bmf find me and add back, but you must be actually social.
+hey, returning but removed all my friends since they're all inactive/not social to me much anymore + to start fresh, i'm also changing ghs & my pref name ^^ if you still want to bmf find me and add back, but you must be actually social.
